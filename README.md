@@ -25,4 +25,10 @@ I had to manually download the images for those ones.
 ## Stats  
 Start time 2:34pm  
 End time 3:12pm  
-Total runtime: 38 minutes
+Total runtime: 38 minutes  
+  
+  
+  
+  
+  
+I 👁🚫 have not ❌ been checking chat 🙇💬 because I 👁👁 have 😩👍 been completely 🙌😍 engrossed in 👏🚪 downloading the 👀 entirety of the 💦🕵 berserk manga from 🔛 this 👀😷 site - https://readberserk.com/ for most 👥👉 of the day 📅😩
